@@ -1,4 +1,4 @@
-# Prioritize your personal growth time over everything else
+## Prioritize your personal growth time over everything else
 
 ![enter image description here](https://github.com/ksens/ksens.github.io/blob/master/img/WhatsApp-Image-2021-03-19-at-16.45.03-1-1024x1024.jpeg?raw=true)
 
